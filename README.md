@@ -10,7 +10,7 @@ Belgeyi online görüntülemek için: [blogum](http://1zinnur9.blogspot.com/2014
 
 Öneri ve sorularınız için: zinnuryesilyurt@gmail.com
 
-Anlık ulaşmak için: [twitter'ım](https://twitter.com/zinnur92)
+Anlık ulaşmak için: [twitter'ım](https://twitter.com/1zinnur9)
 
 
 ##Teşekkür Ederim
